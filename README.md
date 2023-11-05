@@ -18,4 +18,8 @@
 `NON BUTTON BOT`
 
 <a href="https://Wa.me/+94758179948">CONTACT MR-KALINDU </a>
-   </a>    
+   </a> 
+
+   
+  #### ```TOTAL PROFILE VIEWS 🧚```
+![Visitor Count](https://profile-counter.glitch.me/MR-KALINDU/count.svg)
